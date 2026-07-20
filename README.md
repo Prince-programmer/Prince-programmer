@@ -42,4 +42,3 @@ Government Degree College Dharamshala
 
 ---
 
-📄 [Download Resume (PDF)](./PrinceParmar_InternshalaResume.pdf)
